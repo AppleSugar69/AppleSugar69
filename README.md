@@ -2,10 +2,10 @@
 - Also known as rice
 - 👀 I’m interested in leanring new stuff everyday in life and to do code
 - 🌱 I’m currently learning python and html with a gist of css and js
-- 💞️ I’m looking to collaborate on nothing as im fairly new and dont know most of the stuff
-- 📫 You can contact me to my discord riceislove.
+- 💞️ I have a love life now and im happy with him, he is the best
+- 📫 You can contact me to my discord kuroislove.
 - 😄 Pronouns: i dont specially mind any so ig any pronouns work
-- ⚡ Fun fact: i love coffee and like to stay alone half the time and cry 
+- ⚡ Fun fact: i love coffee and like to stay with Kuro and play games and do stuff with him
 
 <!---
 AppleSugar69/AppleSugar69 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
