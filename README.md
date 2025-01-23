@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @AppleSugar69
-- Also known as rice
+- 😭 Also known as rice and idiot. I am an idiot so dm me if you wanna be idiot together with me, im kind of lonely :) 
 - 👀 I’m interested in leanring new stuff everyday in life and to do code
 - 🌱 I’m currently learning python and html with a gist of css and js
-- 💞️ I have a love life now and im happy with him, he is the best
-- 📫 You can contact me to my discord kuroislove.
+- 💞️ secret :3 
+- 📫 You can contact me to my discord riceeeisbest
 - 😄 Pronouns: i dont specially mind any so ig any pronouns work
 - ⚡ Fun fact: i want friends and im kind of lonely 
 
